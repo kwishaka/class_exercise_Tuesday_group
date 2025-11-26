@@ -2,7 +2,7 @@
 ### MAWOMBE Ruth ID: 28923 Email: mawomberuth@gmail.com
 ### Azabe Benine ID :28291 Email: azabebenine200@gmail.com
 ### IRADUKUNDA Marie Sandrine ID: 28327 Email: iradukundamariesandrine84@gmail.com
-###
+###ukwishakasandrine6@gmail.com
 ###
 
 **there have been some issues in creating an organisation as you may presume in the screenshot bellow**
